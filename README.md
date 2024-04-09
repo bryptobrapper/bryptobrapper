@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bryptobrapper
 - 👀 I’m interested in farcaster frames!
 - 🌱 I’m currently learning how to make farcaster frames!
-- 💞️ I’m looking to collaborate sick farcaster frames!
+- 💞️ I’m looking to collaborate on sick farcaster frames!
 - 📫 How to reach me: farcaster @bryptobrapper
 - 😄 Pronouns: O/den
 - ⚡ Fun fact: Oden wouldn't be oden if it wasn't boiled 
